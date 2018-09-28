@@ -1,0 +1,2 @@
+# normalizalas
+reeeeeeeeaad meee
